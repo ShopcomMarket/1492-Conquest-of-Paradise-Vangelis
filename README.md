@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/1492-conquest-of-paradise-vangelis/
 Product Price : 13 $
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
